@@ -1,2 +1,1 @@
-# Samuel-Duque
-Este es una prueba xd
+Samuel Duque, ESTE PROYECTO ES UNA PRUEBA DESD EMI ESCRITPRIO A GITHUB
